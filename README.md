@@ -28,3 +28,7 @@
 ## 欢迎加入QQ群友好交流
 
 <img src="https://github.com/user-attachments/assets/eec86731-7e24-404e-b538-f34e868cb5d0" width="300px" alt="qq">
+
+## 声明
+
+财有余力的同学请支持 cursor 官方业务，薅羊毛不可持续～
